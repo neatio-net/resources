@@ -1,1 +1,1 @@
-Logos, Flyers, Covers, Headers and other NEAT resources.
+Logo, Fonts, Flyers, Covers, Headers and other Neatio resources.
